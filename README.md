@@ -27,6 +27,7 @@
 * CourseForFree : [1](https://courseforfree.com/) - [2](https://courseforfree.net/)
 * [Udemy 24](https://udemy24.com/)
 * [FreeTuts](https://freetutsdownload.net/)
+* [Pdfdownload](https://pdfdownload.com.ng/category/recruitment-news/)
 * [Course Club](https://courseclub.me/)
 * [Tutorials Planet](https://tutorialsplanet.net/)
 * [OnlineFreeCourse](https://www.onlinefreecourse.net/)
